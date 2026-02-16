@@ -1,1 +1,0 @@
-# ajcubed.github.io
